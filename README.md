@@ -1,1 +1,1 @@
-# -Impacts-of-Sociodemographic-Factors-and-Economic-Development-on-Marriage
+# Impacts-of-Sociodemographic-Factors-and-Economic-Development-on-Marriage
